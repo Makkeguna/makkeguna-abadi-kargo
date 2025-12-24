@@ -1,0 +1,1 @@
+# makkeguna-abadi-kargo
